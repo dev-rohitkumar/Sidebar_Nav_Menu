@@ -49,7 +49,8 @@ Edit
 
 👨‍💻 Rohit Kumar  
 🔗 [LinkedIn](https://www.linkedin.com/in/dev-rohitkumar)  
-🐙 [GitHub](https://github.com/dev-rohitkumar)  
+🐙 [GitHub](https://github.com/dev-rohitkumar) 
+✨ [x.com(Formerly Twitter)](https://x.com/dev_rohitkumar) 
 
 ---
 
